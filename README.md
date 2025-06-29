@@ -7,4 +7,6 @@ Hey it's Sunday!
 
 A Nice day today!
 
+Time for some games!
+
 To day is a bad day!!
