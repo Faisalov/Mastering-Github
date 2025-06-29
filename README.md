@@ -7,4 +7,4 @@ Hey it's Sunday!
 
 A Nice day today!
 
-To day is a bad day.
+To day is a bad day!!
